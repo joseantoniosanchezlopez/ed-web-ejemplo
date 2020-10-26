@@ -2,4 +2,4 @@
 
 ### AUTORES
 
-Jose Antonio Sánchez López - joseantoniosanchezlopez.outlook.com
+Jose Antonio Sánchez López - joseantoniosanchezlopez@outlook.com
